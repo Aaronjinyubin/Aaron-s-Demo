@@ -1,0 +1,1 @@
+http://www.nowamagic.net/librarys/veda/detail/996
